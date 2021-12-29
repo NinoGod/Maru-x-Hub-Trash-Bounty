@@ -1,1 +1,0 @@
-# Maru-x-Hub-Trash-Bounty
